@@ -11,13 +11,15 @@
 
 ![MagPi74_11_zh.jpg](https://upload-images.jianshu.io/upload_images/13714448-ce13314e028484de.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-![MagPi74_8_en.jpg](https://upload-images.jianshu.io/upload_images/13714448-e42e0f864c7329d7.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![MagPi74_8_en.jpg](https://upload-images.jianshu.io/upload_images/13714448-7f16c54fc8c5cffc.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-![MagPi74_9 en.jpg](https://upload-images.jianshu.io/upload_images/13714448-584e57650d440c50.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![MagPi74_9 en.jpg](https://upload-images.jianshu.io/upload_images/13714448-865be49d571d87b9.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-![MagPi74_8_en.jpg](https://upload-images.jianshu.io/upload_images/13714448-93c6a99370c8de86.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![MagPi74_10 en.jpg](https://upload-images.jianshu.io/upload_images/13714448-99e2ee4df12ad71c.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-![MagPi74_9 en.jpg](https://upload-images.jianshu.io/upload_images/13714448-8d50da35c2d64655.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![MagPi74_11 en.jpg](https://upload-images.jianshu.io/upload_images/13714448-db0e8f22830bb54d.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+
 
 
 
